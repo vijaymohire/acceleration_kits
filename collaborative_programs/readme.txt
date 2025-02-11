@@ -1,0 +1,1 @@
+This is for all the collaborations with our partners based acceleration and quick turnaround time and ready to use templates, typically where we work with the Universities, R&D labs, and industry partners.   
